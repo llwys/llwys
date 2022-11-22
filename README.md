@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @llwys
 - 👀 I’m interested in math olympiad geometry
-- 🌱 I’m currently a high school senior at Nguyen Binh Khiem high school for the gifted
+- 🌱 Currently a high school senior at Nguyen Binh Khiem high school for the gifted
 - 📫 You can contact me at: solo.to/llw
